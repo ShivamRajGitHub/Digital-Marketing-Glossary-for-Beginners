@@ -2,9 +2,9 @@
 
 ## Internship Project Report
 
-**Name:** Shivam  
+**Name:** Shivam Raj
 **Duration:** 3-Month Digital Marketing Internship  
-**Date:** August 2025  
+**Date:** 21 August 2025  
 
 ---
 
